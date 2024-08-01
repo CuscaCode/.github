@@ -36,7 +36,7 @@ Para más información sobre nuestros proyectos, servicios o oportunidades de co
 
 ## Únete a Nosotros
 
-Estamos siempre en busca de talento y colaboradores apasionados por la tecnología y la innovación. Si estás interesado en trabajar con nosotros o en aprender más sobre nuestras oportunidades, visita nuestro sitio web o contáctanos directamente.
+proximamente
 
 ---
 
